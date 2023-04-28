@@ -1,0 +1,4 @@
+- I started learning JavaScript
+- 14
+- Dis: Játrový knedlíčekk#9584
+- Fav Games: Roblox, Minecraft, Fortnite, Green Hell
